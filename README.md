@@ -1,2 +1,2 @@
-# pengqiangchn.githhub.io
+# pengqiang.githhub.io
 博客
